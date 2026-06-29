@@ -1,4 +1,4 @@
-#  
+#  bridger western Scripts ultimate offers the most advanced bridger western Script, with auto-upgrade and fly. Perfect for dominating any match.
 
 
 
